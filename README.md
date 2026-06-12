@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on something VERY important ✋🏻<br>🤝 I’m looking for help with learning Ai<br>🌱 Cisco CEH badge awardee, looking to expand more<br>💬 Ask me about chemistry <br>⚡ Fun fact, Adenosine is like ram useage which builds up, unless you shut down (sleep) or add a bit of coffee 😏
+🔭 Currently learning touch typing ✨✋🏻<br>🤝 I’m looking for help with learning Ai<br>🌱 Cisco CEH badge awardee, looking to expand more<br>💬 Ask me about chemistry <br>⚡ Fun fact, Adenosine is like ram useage which builds up, unless you shut down (sleep) or add a bit of coffee 😏
 
 
 ## 🌐 Socials:
